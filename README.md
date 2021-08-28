@@ -1,1 +1,0 @@
-# shalomnatha.github.io
